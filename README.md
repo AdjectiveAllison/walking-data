@@ -1,3 +1,6 @@
 # walking-data
 
-Relevant to an article.
+Relevant to https://adjectiveallison.com/ramblings/mindful-walk-aggie-park/
+
+
+
